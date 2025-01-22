@@ -4,3 +4,5 @@ BHEL Engineer and Supervisor Recruitment 2025 : Bharat Heavy Electricals Limited
 
 Candidates can check detailed eligibility criteria, job profiles, and other terms when comprehensive notification that will be published once the application process begins.
 https://loginpw.com/bhel-engineer-and-supervisor-recruitment-2025/
+
+[BHC Clerk Recruitment 2025, Apply Online Now for 129 Vacancies at Bombay High Court](https://loginpw.com/bhc-clerk-recruitment-2025/)
